@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-
+We are almost on it... 
 
 ## Chapter 3: Hardship
 
