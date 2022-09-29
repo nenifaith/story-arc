@@ -6,7 +6,7 @@ Our story begins with...
 
 
 ## Chapter 2: Quest
-We are almost on it... we did it guys... trying it for third time... 
+We are almost on it... we did it guys... trying it for third time... trying to learn.. 
 
 ## Chapter 3: Hardship
 A powerful mind can achieve anything it sets its sights on.
