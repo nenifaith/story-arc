@@ -9,7 +9,7 @@ Our story begins with...
 
 
 ## Chapter 3: Hardship
-
+A powerful mind can achieve anythink
 
 ## Chapter 4: Recovery
 
